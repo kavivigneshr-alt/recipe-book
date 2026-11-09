@@ -4,5 +4,6 @@
 - 1 tsp tea leaves
 - 1 small piece ginger
 - Sugar to taste
+- Cardamon
 
 Boil water with ginger, add tea leaves, add milk, simmer, strain.
